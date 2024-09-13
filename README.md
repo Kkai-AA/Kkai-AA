@@ -13,3 +13,5 @@ I sometimes host!!
 ;; I can be blunt or dry depending on how im feeling or who im attached to don’t take it personally please :3 
 
 ;; Freaky freak [Sometimes]
+
+;; I am a minor!! 
