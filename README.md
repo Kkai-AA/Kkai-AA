@@ -3,7 +3,7 @@ Hi there you silly goober !!
 I sometimes host!! 
 
 [ Juans Mafia ] [ FrostFall Mafia ] [ Silly OcMaker ] [ Small FashionRoulette ] [ Mini FTS ]
-
+Common Co-Host of [ Crystal Manor ]
 + Random info !!
 
 ;; I somtimes get comfy rly quick !! 
