@@ -15,3 +15,5 @@ Common Co-Host of [ Crystal Manor ]
 ;; Freaky freak [Sometimes]
 
 ;; I am a minor!! 
+
+;; feel free to cuddle or hide as long as i'm not with friends
